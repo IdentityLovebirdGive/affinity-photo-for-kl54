@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Photo for macOS plugin with exclusive Plugin for Affinity Photo for macOS - AI-assisted design and vector export. Featuring AI-assisted design and vector
 
 
 
